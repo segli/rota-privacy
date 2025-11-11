@@ -45,8 +45,7 @@ We may update this privacy policy from time to time. We will notify users of any
 
 ## Contact Us
 
-If you have questions about this privacy policy, please contact us at:
-[Your contact email]
+If you have questions about this privacy policy, please contact us at: apps@egl.is
 
 ---
 
